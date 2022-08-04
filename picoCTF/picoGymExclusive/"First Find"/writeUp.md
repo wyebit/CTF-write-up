@@ -9,3 +9,4 @@
 ![image](https://user-images.githubusercontent.com/19588033/182797313-3b65c679-d101-45ff-8c3b-d9e3ec0af9bc.png)
 5. REDEEM!
 ![image](https://user-images.githubusercontent.com/19588033/182797790-17e35d2a-d9bf-4f75-9434-47e028e62052.png)
+6. DONE!
